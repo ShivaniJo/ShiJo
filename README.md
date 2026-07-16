@@ -63,4 +63,4 @@
 
 ### 📫 Let's Connect
 
-I'm actively looking for opportunities in **Data Analytics, Data Science, or ML roles** in Germany and remote-friendly EU companies. Feel free to reach out via [LinkedIn](https://www.linkedin.com/in/shivani-joisar-3a5b86267).ny — Available immediately
+I'm actively looking for opportunities in **Data Analytics, Data Science, or ML roles** in Germany and remote-friendly EU companies. Feel free to reach out via [LinkedIn](https://www.linkedin.com/in/shivani-joisar-3a5b86267)— Available immediately
